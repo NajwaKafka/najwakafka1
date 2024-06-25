@@ -1,0 +1,2 @@
+# najwakafka1
+portofolio
